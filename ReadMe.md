@@ -1,4 +1,4 @@
-# 🤙 Eii Jovens:
+# 🤙 Eii Jovens bora Codar?
 <br>💻 Sou estudante de Front-end.<br>📚 Estou a procura de estagio.<br>📖 Aprendendo novos idiomas.<br>🌱 Inglês /espanhol / italiano .<br>💬 Entre em contato por E-mail/LinkedIn 
 
 
